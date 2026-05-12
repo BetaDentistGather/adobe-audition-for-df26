@@ -1,4 +1,4 @@
-# 
+# vip Adobe Audition for PC | Adobe Audition for Windows Transition | plugin-support + noise-reduction offers the most advanced Adobe Audition for PC | Adobe Audition for Windows
 
 
 
